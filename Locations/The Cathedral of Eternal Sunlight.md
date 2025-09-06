@@ -1,0 +1,1 @@
+The main church of the [[Pelor Faith]].
