@@ -1,0 +1,1 @@
+The God of Knowledge, worshipped in [[Candlekeep]].
