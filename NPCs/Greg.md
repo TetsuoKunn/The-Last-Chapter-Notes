@@ -1,0 +1,1 @@
+Fuck ass robot. I don't know who made him yet. Same guy who commanded all the people to roam my house, Truman show style. 
