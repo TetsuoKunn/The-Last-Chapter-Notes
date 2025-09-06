@@ -1,0 +1,1 @@
+While this small steam-powered engine is just as small to fit within a one-foot cube, it generates as much energy as if it were the size of an entire room. Loosely put, it would be capable of generating enough stress to move a standard-sized galleon at double speed for as long as you power it with a burnable fuel source. It is highly fuel inefficient. 

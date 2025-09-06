@@ -1,0 +1,1 @@
+Whiskey in a bowl, gold eyes (dusty compound that breaks down, in the mine) , Torm (mercury liquid that can be distilled from a certain type of animal, should be in the cold gnome, Wyvern), cast disintegrate on it.
